@@ -1,2 +1,0 @@
-# shivaniprajapati
-new repo
